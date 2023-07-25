@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Karthigeyan-19
+- 👀 I’m interested in playing badminton
+- 🌱 I’m currently learning to code
+- 💞️ I’m looking to collaborate on instagram
